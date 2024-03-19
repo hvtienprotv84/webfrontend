@@ -1,0 +1,6 @@
+# CV HUYNH VINH TIEN
+## THÔNG TIN
+* Huynh Vinh Tien
+* 2011061897
+* 20DTHB2
+* 2020 - 2024
